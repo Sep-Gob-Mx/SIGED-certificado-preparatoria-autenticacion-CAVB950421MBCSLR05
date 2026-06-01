@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CAVB950421MBCSLR05
+CAVB950421MBCSLR05
